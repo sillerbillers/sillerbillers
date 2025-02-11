@@ -4,7 +4,7 @@
 
 links : on straw pg! VVV
 
-https://sillyzzyzy.straw.page/
+https://sillyaug.straw.page
 
 <————♥—————<< pt dni list strawpg vv⠀>>————♥—————>
 
